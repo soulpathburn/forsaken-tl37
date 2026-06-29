@@ -1,4 +1,4 @@
-#  
+#  hidden forsaken Scripts offers the most advanced forsaken Script, with no cooldown and undetectable. Perfect for dominating any match.
 
 
 
